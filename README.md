@@ -7,7 +7,7 @@
 
 </a>
 
-![logo](https:https://i.pinimg.com/originals/95/e3/1b/95e31ba3d2d51ac1c90c33f2a3e17891.pngl0y)
+![logo](https://i.pinimg.com/originals/95/e3/1b/95e31ba3d2d51ac1c90c33f2a3e17891.pngl0y)
 <h1 align="center"><b> BLACK-TIGER-BOT-V2) </b></h1>
 
 </a>
