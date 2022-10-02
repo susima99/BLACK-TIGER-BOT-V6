@@ -7,8 +7,8 @@
 
 </a>
 
-![logo](https://telegra.ph/file/702bfc5e4176727a34559.jpg)
-<h1 align="center"><b> 🧚𝗔𝗠𝗔𝗭𝗢𝗡𝗘 𝗔𝗟𝗘𝗫𝗔 (ᴠɪᴘ) </b></h1>
+![logo](https:https://i.pinimg.com/originals/95/e3/1b/95e31ba3d2d51ac1c90c33f2a3e17891.pngl0y)
+<h1 align="center"><b> BLACK-TIGER-BOT-V2) </b></h1>
 
 </a>
              
@@ -146,7 +146,7 @@ neotro-x  පිහිටුවීමෙන් ඔබ මෙම වගකීම�
 
 [![Chethana_Broh-TeenuhX](https://github.com/tenuh.png?size=100)](https://https://youtu.be/mcEeIspWOpY)
 
- ***ᴄʜᴇᴛʜᴀɴᴀ_ʙʀᴏ(Teenuh-X😈)***
+ ***BLACK-TIGER-BOT-V2😈)***
 <a href="https://Wa.me/+94766598862">
     <img src="https://img.shields.io/badge/FindOn%20whatsapp-purple&style=plastic">
   
@@ -157,7 +157,7 @@ neotro-x  පිහිටුවීමෙන් ඔබ මෙම වගකීම�
   
   </a>
 
-<a href="https://Wa.me/+17722181933">
+<a href="https://Wa.me/+767233346">
     <img src="https://img.shields.io/badge/FindOn%20Whatsapp-purple&style=plastic">
   
   </a>
@@ -172,7 +172,7 @@ neotro-x  පිහිටුවීමෙන් ඔබ මෙම වගකීම�
 [![Find On Whatsapp ](https://img.shields.io/badge/Findon-whatsapp-red.svg)](https://Wa.me/+94766598862)
 
 
-### 🚀Amazone Alexa Team
+### 🥵BLACK-TIGER-BOT-V2Team
 
 [![Find On Telegram ](https://img.shields.io/badge/Ramilka-Rodrigo-blue.svg)](https://t.me/ramiya_yt) [![Encuizer ](https://img.shields.io/badge/En-Cuizer-blue.svg)](https://Wa.me/+94725549179) [![Find On Whatsapp ](https://img.shields.io/badge/Chamee-blue.svg)](https://Wa.me/)
 [![Find On Whatsapp ](https://img.shields.io/badge/Hazel-Safron-blue.svg)](https://Wa.me/) [![Find On Whatsapp ](https://img.shields.io/badge/Rashid-Riyaz-blue.svg)](https://Wa.me/+17723534981) [![Find On Whatsapp ](https://img.shields.io/badge/mr.freez-blue.svg)](https://Wa.me/)
@@ -189,5 +189,7 @@ neotro-x  පිහිටුවීමෙන් ඔබ මෙම වගකීම�
 [![Find On Whatsapp ](https://img.shields.io/badge/Amazone-News02-purple.svg)](https://chat.whatsapp.com/LVykTrmNEU98AktU0eBNNq)
 [![Find On Whatsapp ](https://img.shields.io/badge/Amazone-News03-purple.svg)](https://chat.whatsapp.com/JdNWV3viiGKGINYNrb5oy8)
 ## 👽Thanks To
+ටැන්කියු උම්මා 
+අදරෙයි
 [![Yusuf Usta](https://github.com/yusufusta.png?size=50)](https://t.me/fusufs)
 [Yusuf Usta](https://t.me/fusufs)
